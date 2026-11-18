@@ -133,6 +133,7 @@ Tested on (date):
 - [Insider Gaming — GTA 6 Cheat Codes](https://insider-gaming.com/all-gta-6-cheats-best-grand-theft-auto-6-cheat-codes/) (additional reporting)
 - [VGC — GTA 6 Beginner's Guide](https://www.videogameschronicle.com/guide/gta-6-beginners-guide-6-tips-you-need-to-know-before-starting-gta-6/) (early gameplay tips)
 - [Destructoid — Best Ways to Make Money in GTA 6](https://www.destructoid.com/the-best-and-fastest-ways-to-make-money-in-gta-6/) (money-making coverage)
+- [Medium Author Share](https://medium.com/@ultimate-minecraft/gta-6-cheats-money-glitches-250k-code-and-61-cheats-4148169d5e26)
 
 ## Disclaimer
 
